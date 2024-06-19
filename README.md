@@ -1,4 +1,4 @@
-- 👋 hi, I`am @ana1clara2
+- 👋 hi, i´am @ana1clara2
 - 👀 estou interessada em: aprender mais sobre tecnologia UX e UI etc...
 - 🌱 atualmente estou estudando e aprendendo sobre {desenvolvimento web e syber seguranca ETC..}
 - 💞️ pretendo fazer outros cursos. principalmente os que tem haver com tecnologia. e entre outros.
